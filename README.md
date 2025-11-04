@@ -7,3 +7,6 @@ Yapanlar
 ---- Sümeyye Onat (23370031035)
 ---- Dilara Karaoğlu (23370031016)
 ---- Amine Zehra İlkay (22370031060)
+
+Uygulama Tanıtımı
+https://youtu.be/zd7NLAaj-oc
